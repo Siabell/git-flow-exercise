@@ -1,3 +1,4 @@
+[Back](../../index.md)
 # Grilled Peach Salad
 
 This salad is great for the summer months. It's a light lunch or great salad to accompany a BBQ. The combination of sweet grilled peaches, toasted pecans, soft salty blue cheese with honey and thyme balsamic dressing looks impressive enough to appear on any restaurant menu... yet takes just moments to make.
