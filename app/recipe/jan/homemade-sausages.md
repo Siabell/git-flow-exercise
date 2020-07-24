@@ -4,6 +4,9 @@ A sausage is a universally used ingredient... every nation has one they're proud
 
 Source: https://sortedfood.com/recipe/2609
 
+#### Total time: 
+30 minutes
+
 ## Ingredients
 
 - 800 g pork shoulder

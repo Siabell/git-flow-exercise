@@ -4,6 +4,9 @@ Got someone you really need to impress but don't want to spend all night in the 
 
 Source: https://sortedfood.com/recipe/971
 
+#### Total time: 
+1 hour 15 minutes
+
 ## Ingredients
 
 - 3 gelatine leaves

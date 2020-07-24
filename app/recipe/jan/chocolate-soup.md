@@ -4,6 +4,9 @@ This is perhaps one of the richest, yet most beautiful desserts... it's simple a
 
 Source: https://sortedfood.com/recipe/10702
 
+#### Total time: 
+1 hour
+
 ## Ingredients
 
 - 400 g brioche loaf (or rolls)
