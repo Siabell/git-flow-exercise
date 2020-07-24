@@ -5,6 +5,9 @@ This salad is great for the summer months. It's a light lunch or great salad to 
 
 Source: https://sortedfood.com/recipe/1135
 
+#### Total time: 
+1 hour 30 minutes
+
 ## Ingredients
 
 - 2 fresh ripe peaches

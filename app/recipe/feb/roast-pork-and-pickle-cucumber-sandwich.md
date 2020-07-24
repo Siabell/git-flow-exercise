@@ -2,6 +2,9 @@
 
 Source: http://www.realsimple.com/food-recipes/browse-all-recipes/roast-pork-sandwich
 
+#### Total time: 
+1 hour 15 minutes
+
 ## Ingredients
 
 - 1 pound boneless pork loin

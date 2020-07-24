@@ -7,6 +7,9 @@ This is a quick, easy way to saute asparagus. The dish has a light flavor and ma
 
 Source: https://www.allrecipes.com/recipe/174361/asparagus-with-cranberries-and-pine-nuts/
 
+#### Total time: 
+45 minutes
+
 ## Ingredients
 
 - 1 bunch asparagus

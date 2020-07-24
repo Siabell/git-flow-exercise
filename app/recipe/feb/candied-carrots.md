@@ -5,6 +5,9 @@ My family's favorite vegetable. They are great for the holidays, too!
 
 Source: https://www.allrecipes.com/recipe/18241/candied-carrots/
 
+#### Total time: 
+30 minutes
+
 ## Ingredients
 
 - 1 pound carrots, cut into 2 inch pieces
