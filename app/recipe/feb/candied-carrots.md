@@ -1,5 +1,5 @@
 [Back](../../index.md)
-# Candied carrots
+# Candied Carrots
 
 My family's favorite vegetable. They are great for the holidays, too!
 
@@ -7,11 +7,11 @@ Source: https://www.allrecipes.com/recipe/18241/candied-carrots/
 
 ## Ingredients
 
-- 500 g carrots
+- 1 pound carrots, cut into 2 inch pieces
 - 2 tablespoons butter, diced
-- 1/4 cup packed brown sugar
+- ¼ cup packed brown sugar
 - 1 pinch salt
-- 1 pinch ground black pepper 
+- 1 pinch ground black pepper
 
 # Instructions
 
